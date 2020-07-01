@@ -1,3 +1,3 @@
-# Welcome to Bob Stanke's GitHub Blog
+# WELCOME TO BOB STANKE'S GITHUB BLOG
 
 ## MOST RECENT POSTS
