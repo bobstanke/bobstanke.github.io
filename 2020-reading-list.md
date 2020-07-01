@@ -1,6 +1,6 @@
-# BOB STANKE'S BOOK TRACKER
+# 2020 READING LIST
 
-Below are the books I currently have on my reading wishlist (as of July 2020).  As I complete each book, I will mark them as completed and if the read was worth it, I may write up some quick thoughts about the things I learned.  These books are in no particular order.
+Below are the books I currently have on my reading wishlist (as of July 2020).  As I complete each book, I will mark them as completed and if the read was worth it, I may write up some quick thoughts about the things I learned.  All of them are downloaded onto my Kindle, and with vacation coming up in a couple fo weeks, I am sure I will get through several of them in the next few weeks.  The books are listed in no particular order.
 
 ### BOOKS TO READ
 
